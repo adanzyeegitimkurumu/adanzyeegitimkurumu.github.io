@@ -1,1 +1,0 @@
-# adanzyeegitimkurumu.github.io
